@@ -1,3 +1,1 @@
-Myself Hiral Bansal
-Completed my schooling from carmel convent from neemuch (MP)
-Opted Ai and Ml branch for my btech journey from NMIMS shirpur 
+Myself Hiral Bansal a B.Tech student specializing in Artificial Intelligence & Machine Learning at NMIMS. Passionate about technology, continuous learning, and exploring the evolving world of AI.
